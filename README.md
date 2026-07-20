@@ -1,4 +1,4 @@
-# indigenous_target_sports_catalogue2.html
+# indigenous_target_sports_catalogue2 info session
 
 # Indigenous Target Sports Initiative
 
